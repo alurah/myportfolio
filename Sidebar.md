@@ -1,0 +1,1 @@
+I specialize in designing intuitive user experience and developing efficient  back-end systems. my work often involves github projects, contributing to open source repositories and engaging in research  on emerging technologies such as AI and cloud computing

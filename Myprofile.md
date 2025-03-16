@@ -1,0 +1,2 @@
+I am intersted in research and innovation within the field of technology. My key areas are: cloud computing, artificial intelligence and cybersecurity where i explore new advancement and there applications
+My goal is to develop impactful software solution and contribute to the tech community through innovation, collaboration and research.

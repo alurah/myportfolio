@@ -1,0 +1,2 @@
+When i`m not coding, i enjoy hobbies that keep me inspired by working in personal coding project, designing UI/UX layouts and contributing to open source communities. Outside of tech, i enjoy reading motivational books, lisening to music and exploring digital art
+These activities help me stay innovative and bring fresh ideas into my work. 
